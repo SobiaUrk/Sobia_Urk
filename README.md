@@ -6,6 +6,6 @@ Hello I am Sobia!
 👯 I’m looking to collaborate on Youtube.
 🤔 I’m looking for help with Graphic Designing.
 💬 Ask me about Graphic Designer or any tech-related stuff.
-📫 How to reach me: Twitter - @Sobia , LinkeIn - @Sobia_Majeed
+📫 How to reach me: Twitter - @Sobia68760744,  Upwork -@Sobia_Majeed,  Fiverr - @sobiaurk,  Behance - @Sobia Majeed,
 😄 Pronouns: She/Her
 ⚡ Fun fact: I spend almost 3 hours listening to songs every day & almost 12 hours Reading book.
